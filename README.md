@@ -55,5 +55,9 @@ Unfortunately, I use the thicker piece of paper and used it to be the extender, 
 
 The second prototype; this time I had my pieces laid out  in front of me so it was neat and tidy. This made it easier to know what would act as that and this, and where I should put it. I didn't mention this before, but my first prototype had a lot of holes in the base, as well as in the main antennae, so it was already sort of floppy. The plan was to have the base secure with four legs in and out so the base wouldn't move. Then have a pole in the middle poking out on top so I could connect the next halo to make the second base. Next was to have the main piece punched through the hole on the second base that’s connected to the first, so it would act as the pole in the middle. I made sure to fold the paper in half so it wouldn't be floppy. Then I punched a hole in the main piece so I can attach the extender through. The less weight was on the top, the better it can hold itself.
 
+![IMG_1277](https://github.com/StAndrewsCollege/2324-tej3m-5-e-0-sprint0-petertran25/assets/156712988/00944ea4-4ab9-4d66-8139-6218b4c7b867)
+
+![IMG_1279](https://github.com/StAndrewsCollege/2324-tej3m-5-e-0-sprint0-petertran25/assets/156712988/a776ad18-ad37-4d34-b9ce-76bc0e544f1d)
+
 
 
